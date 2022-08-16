@@ -1,2 +1,2 @@
 
-This is a giene in a bottle
+This is a panada in a bottle
